@@ -1,6 +1,6 @@
 # fliggycloud飞天猪官网地址
 
-最新地址：[fliggyaff.xyz](https://ftzaffcom01.fliggyaff.xyz/#/register?code=DY2604p5)
+最新地址：[fliggyaff.xyz](https://web01.fliggycloud.cc/#/register?code=DY2604p5)
 
 ## 飞天猪介绍
 
